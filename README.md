@@ -1,1 +1,1 @@
-Se inscrevam no PSEL!!!!!!!!!
+Se inscrevam no PSEL da ICMC Júnior!!!!!!!!!
